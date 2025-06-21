@@ -1,19 +1,21 @@
-![IMG_3149](https://github.com/user-attachments/assets/f598805e-06a2-49f4-a3d5-9b945843ccd4)
-🌊 ᵔᴗᵔ  **ABOUT ME ** 🌊
+![IMG_3190](https://github.com/user-attachments/assets/6d754afa-07c7-48bf-8fa6-147f46e72df2)
 
-:¨ ·.· ¨:  　—　`🎀` :  Spirit / __Grave__ / **Omnisexual**! (>‿<)  
+🌙 ᵔᴗᵔ  **ABOUT ME ** 🌙
+
+:¨ ·.· ¨:  　—　`💤` :  Spirit / __Grave__ / **Omnisexual**! (>‿<)  
 ･  .  **17 yr old !** __INFP-T__!  ♡
 
-⪩☁️⪨　— **`Princess of the Spirits !!` ┄  __she/her__!  [__ Cuddle freely!!__ ] ** ♡
-—• **W2IUF** with a __Either in dw, crk, mha area !  **Im too shy to communicate since i suffer from social anxiety so i will appreciate it if u int first !!**__! :¨ ·.· ¨:
-⪩🌸⪨　—  **`All skins is made by me so Please DNC!!` ┄  __A person with slight autism/adhd/bipolar/dyslexia/social anxiety__! **♡
+⪩⭐️⪨　— **`Princess of the Spirits !!` ┄  __she/her__!  [__Cuddle freely!!__ ] ** ♡
+—• **W2IUF** Im either in dw (all the time !), crk, mha area !  **Im too shy to communicate since i suffer from social anxiety so i will appreciate it if u int first !!**__! :¨ ·.· ¨:
+⪩🌌⪨　—  **`All skins is made by me so Please DNC!!` ┄  __A person with slight autism/adhd/bipolar/dyslexia/social anxiety__! **♡
 
-⪩💧⪨　—  **`My Favorite? `┄ __Cats/Extroverts/seafood/Fries!__** ♡ 
+⪩💫⪨　—  **`My Favorite? `┄ __Cats/Extroverts/seafood/Fries!__** ♡ 
 
 ｡ﾟﾟ･｡･ﾟﾟ｡ 
 ﾟ。___check out my **pronouns/strawpage/rentry** for more  ! __ >.<
  ╰╮__**Im very very Friendly and safe to cuddle with or INT !! im mostly afk or offtab but if ur lucky i might come back in time (idk about when im afk- but about offtab whisper so i can know u wanna int !) !!**__
-![Untitled1731_20240723203228](https://github.com/user-attachments/assets/de47f8f3-e748-4cc2-8217-201d89fd6afc)
+![Untitled254_20250621045500](https://github.com/user-attachments/assets/4860617e-615f-4b16-8ada-1d71e86374eb)
+
 
 ⠀**`DNI IF !`**
 1- Toxic/judgemental/narsacisstic
@@ -45,5 +47,6 @@ chilling: im in a good mood or cuddling with friends
 8- Popmusic [poppy x boxten]
 9- Angryhugs [Goob x shrimpo]
 10- teacase [Teagan x rodger]
+11- fossilcake [cosmo x shelly]
 
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀
