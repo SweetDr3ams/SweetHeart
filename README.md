@@ -7,7 +7,7 @@
 
 ⪩⭐️⪨　— **`Princess of the Spirits !!` ┄  __she/her__!  [__Cuddle freely!!__ ] ** ♡
 —• **W2IUF** Im either in dw (all the time !), crk, mha area !  **Im too shy to communicate since i suffer from social anxiety so i will appreciate it if u int first !!**__! :¨ ·.· ¨:
-⪩🌌⪨　—  **`All skins is made by me so Please DNC!!` ┄  __A person with slight autism/adhd/bipolar/dyslexia/social anxiety__! **♡
+⪩🌌⪨　—  **`All skins is made by me so Please DNC!!` ┄  __A person with slight adhd/bipolar/dyslexia/social anxiety and sadly recently ptsd :c __ **♡
 
 ⪩💫⪨　—  **`My Favorite? `┄ __Cats/Extroverts/seafood/Fries!__** ♡ 
 
