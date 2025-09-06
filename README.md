@@ -28,8 +28,6 @@
 1- Im always on offtab or afk ! i might also do stuff like playing/chilling/sleeping.
 offtab: Im either watching/playing/working on another tab and will prob respond unless i have "❌ resp"
 afk: i wont respond at all, i might see u but i wont int since i would be busy moving around
-sleeping: dead asleep wont resp nor see and prob will disconnect if im unlucky if not i can stay for hours until im awake
-chilling: im in a good mood or cuddling with friends 
 2- I might be awkward when making convo since i can only speak when its a topic i can yap about !
 3- I dont do face reveals/Voice chats/heavy personal info
 4- Im the type who uses swear words alot but if ur a person who wants safe convo i can do no swears !
