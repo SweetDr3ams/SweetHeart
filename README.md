@@ -1,1 +1,1 @@
-![IMG_3190](https://github.com/user-attachments/assets/6d754afa-07c7-48bf-8fa6-
+https://files.catbox.moe/7ni9ol.png
